@@ -7,8 +7,8 @@
 Eth donation pls!
 0x6cDfC7Baac8D098C2F638d43A6A70D6419a85479
 
-
-
+I like much things send 1$ and write to me
+We will have a good relationship from now ☺️
 Flaviu336/Flaviu336 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
